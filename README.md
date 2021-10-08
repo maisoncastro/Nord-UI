@@ -1,2 +1,2 @@
 # Nord-UI
-Here will be a list of wallpapers or anything Nord related that I've made to share for y'all.
+A series of nord themed wallpapers that I'll keep churning out in 4k resolution. Keep a tab for more updates!
